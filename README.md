@@ -20,6 +20,6 @@ Here are some ideas to get you started:
 
 爱好是动漫，游戏（负责给队友增加游戏难度）以及通过代码实现自己的创造欲（~~然后发现理想和现实差的不是一丁半点~~）
 
-我的 QQ : 1310554512，我的 Blog：[https://www.cnblogs.com/hao-tong/](https://www.cnblogs.com/hao-tong/)
+我的 QQ 邮箱：[1310554512@qq.com](https://mail.qq.com/cgi-bin/frame_html)，我的 Blog：[https://www.cnblogs.com/hao-tong/](https://www.cnblogs.com/hao-tong/)
 
 如果你喜欢学习，那么恭喜你，你找对人了
