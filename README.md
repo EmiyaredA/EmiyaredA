@@ -22,4 +22,4 @@ Here are some ideas to get you started:
 
 我的 QQ 邮箱：[1310554512@qq.com](https://mail.qq.com/cgi-bin/frame_html)，我的 Blog：[https://www.cnblogs.com/hao-tong/](https://www.cnblogs.com/hao-tong/)
 
-如果你喜欢学习，那么恭喜你，你找对人了
+如果你是个有梦想的人，希望你能和我交朋友😄
